@@ -8,7 +8,7 @@
 
 - 👾tenho interesse em aprender mais sobre as programaçoẽs
 
-[pensamento computacional (https://pt.wikipedia.org/wiki/Pensamento_computacional)
+[pensamento computacional] (https://pt.wikipedia.org/wiki/Pensamento_computacional)
 
 irati-pr
 
