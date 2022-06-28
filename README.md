@@ -4,13 +4,16 @@
 
 - Gosto de computação
 
-- sou estudante do colégio civico militar 
+- sou estudante do colégio civico militar  
 
 - 👾tenho interesse em aprender mais sobre as programaçoẽs
 
+
+[Pensamento Computacional](https://pt.wikipedia.org/wiki/Pensamento_computacional)
+
 irati-pr
 
-https://youtu.be/9R8qzf2VKTM
+
 
 
 
