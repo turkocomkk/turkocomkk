@@ -1,12 +1,12 @@
-😙Ana Clara
+😙 Ana Clara
 
-🤡tenho 14 anos
+- 🤡Tenho 14 anos
 
-gosto de computação
+- Gosto de computação
 
-sou estudante do colégio civico militar 
+- sou estudante do colégio civico militar 
 
-👾tenho interesse em aprender mais sobre as programaçoẽs
+- 👾tenho interesse em aprender mais sobre as programaçoẽs
 
 irati-pr
 
